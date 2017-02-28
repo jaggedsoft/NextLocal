@@ -4186,6 +4186,8 @@ https://nextlocal.net/wholesale-kratom-800-301-3745-richland-wa/
 https://nextlocal.net/wholesale-kratom-800-301-3745-west-haven-ct/
 https://nextlocal.net/wholesale-kratom-800-301-3745-highland-ca/
 https://nextlocal.net/wholesale-kratom-800-301-3745-blue-springs-mo/
+https://www.youtube.com/playlist?list=PLnv2Cep3fp2Xfj1FEQpUcw1dQsQVtufNN
+https://www.youtube.com/channel/UCxXAztylyTf5ly5EfXxmxTg
 https://www.youtube.com/watch?v=v68vXAMmHmA
 https://www.youtube.com/watch?v=k4-5AS1wILg
 https://www.youtube.com/watch?v=paMMU_UR83s
