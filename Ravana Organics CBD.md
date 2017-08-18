@@ -289,3 +289,5 @@
 [will kratom show up on drug test](https://ravanaorganics.com/even-more-about-cbd/)
 [kratom powder effects ](https://ravanaorganics.com/)
 [where to buy kratom near me](https://ravanaorganics.com/)
+https://ravanaorganics.com/product/kratom-powder-buy-kratom-powder/
+https://ravanaorganics.com/product/cbd-tincture-organic-cbd-oil/
