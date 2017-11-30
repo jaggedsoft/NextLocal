@@ -11,19 +11,9 @@ https://nextlocal.io
 
 https://nextlocal.me
 
-https://nextlocal.co
-
 https://nextlocal.us
 
-https://nextlocal.solar
-
-https://plumber.best
-
-https://locksmith.best
-
 https://nextlocal.mobi
-
-https://solar.nextlocal.net
 
 https://mortgage-broker.io
 
@@ -35,11 +25,11 @@ https://garage-door.io
 
 https://pest-control.best
 
-https://contractor.best
+http://www.preventionpromos.com
 
-https://electrician.best
+http://www.promotional.pro
 
-https://www.buykratombulkusa.com
+https://buykratombulkusa.com
 
 Steve runs a retail store and has an e-commerce website to sell products online. Steve was paying over $500 every month for the keywords he wanted using Google AdWords pay per click advertising. Using NextLocal he was able to get all of the highest trafficed and most competitive keywords for only $150 per month, saving him hundreds of dollars. Now, Steve is making more conversions than ever before. Marketing with NextLocal was not only able to save him money, but bring new customers in the process!
 
